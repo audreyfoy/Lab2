@@ -7,6 +7,7 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1 cup of coffee
+- 1 cup of sprinkles
 - ...
 
 ## Instructions:
